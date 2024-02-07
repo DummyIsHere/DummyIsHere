@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding (no shit this is github)
 - 🌱 I’m currently learning html (help me i hate html someone send help)
 - 💞️ I’m looking to collaborate on (litearlly anything(that piques my interest))
-- 📫 How to reach me dm me on disc (dummy_______ (ik a lot of underscores))
+- 📫 How to reach me: dm me on discord (dummy_______ (ik a lot of underscores))
 - 😄 Pronouns: he/him (its she/her on disc ik shut)
 - ⚡ Fun fact: i have no friends :D (exept my friends)
 
