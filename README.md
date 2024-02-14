@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning html (help me i hate html someone send help)
 - 💞️ I’m looking to collaborate on (litearlly anything(that piques my interest))
 - 📫 How to reach me: dm me on discord (dummy_______ (ik a lot of underscores))
-- 😄 Pronouns: he/him (its she/her on disc ik shut)
+- 😄 Pronouns: he/him
 - ⚡ Fun fact: i have no friends :D (exept my friends)
 
 <!---
